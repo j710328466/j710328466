@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @j710328466
 - 👀 I’m interested in Guitar🎸、reading
 - 🌱 I’m currently learning NLP、psychology
-- 📫 How to reach me blog.jzxer.cn
+- ❤️ Build your life
